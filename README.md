@@ -1,1 +1,1 @@
-# dsinha23.github.io/dsinha23/website.html
+# dsinha23.github.io/website.html
